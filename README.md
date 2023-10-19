@@ -2,7 +2,7 @@
 
      
 
-![image_2023_02_01T04_34_14_424Z]([https://user-images.githubusercontent.com/102813392/215954369-53db5a14-0d9d-403a-bc9c-0c4d042d9ca3.png](https://anonymous.4open.science/r/SAIN-760B/Others/SAINimage.PNG))
+![image_2023_02_01T04_34_14_424Z](https://anonymous.4open.science/r/SAIN-760B/Others/SAINimage.PNG)
 
 **Please refer following YouTube links for attack videos according to above given table:** </br>
 **[Normal Operation]:** https://youtu.be/TLJ9UPOcdjw </br>
