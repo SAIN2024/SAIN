@@ -9,8 +9,8 @@
 **[A-2]:** https://youtu.be/SSySD6sn5e4a </br>
 **[A-3]:** https://youtu.be/gvnBvdeBzME </br>
 **[A-4]:** https://youtu.be/SSySD6sn5e4a </br>
-**[A-5]:** https://youtu.be/SSySD6sn5e4a </br>
-**[A-6]:** https://youtu.be/SSySD6sn5e4a </br>
+**[A-5]:** https://youtu.be/Gx6C2-9a540 </br>
+**[A-6]:** https://youtu.be/6Npo1A-huac </br>
 **[A-7]:** https://youtu.be/SSySD6sn5e4a </br>
 **[A-8]:** https://youtu.be/SSySD6sn5e4a </br>
 **[A-9]:** https://youtu.be/SSySD6sn5e4a </br>
