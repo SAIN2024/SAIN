@@ -19,6 +19,3 @@
 **[A-12]:** https://youtu.be/SSySD6sn5e4a </br>
 **[A-13]:** https://youtu.be/SSySD6sn5e4a </br>
 **[A-14]:** https://youtu.be/SSySD6sn5e4a </br>
-
-**Complete YouTube playlist is here:** </br>
-https://www.youtube.com/watch?v=SSySD6sn5e4&list=PLT1QolCLdp7GoLjwi3HT9gr0cxKc_mTRu&index=1a
